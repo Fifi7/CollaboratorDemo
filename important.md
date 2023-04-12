@@ -1,0 +1,1 @@
+It is important to make sure that I fully understand the work, because it will help me to become a fully competent developer who can be able to explain her code with clear understanding.I will be able to build confidence in myself in explaining my code to other developers and I will be able to deliver my tasks efficiently.
